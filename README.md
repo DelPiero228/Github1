@@ -4,7 +4,7 @@
 Наши преимущества:
 1.Высокая точность поиска
 2. Высокая скорость поиска
-3. Низкая ценаferfreerfgergregfreererergerregertkrjtr3j
-
+3. Низкая ценаferfreerfgergregfr
+m
 
 tyujujhjkyghmgdh 
